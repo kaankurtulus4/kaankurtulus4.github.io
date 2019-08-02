@@ -1,1 +1,0 @@
-# kaankurtulus4.github.io
